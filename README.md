@@ -2,7 +2,7 @@
 - 👀 I’m interested in texturepacks
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on i don't know
-- 📫 How to reach me dc:karol880
+- 📫 How to reach me dc:ertave
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm stupid
 
