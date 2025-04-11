@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Karol319
 - 👀 I’m interested in texturepacks
-- 🌱 I’m currently learning pixelart
+- 🌱 I’m currently learning pixel art
 - 💞️ I’m looking to collaborate on i don't know
 - 📫 How to reach me dc:ertave
 - 😄 Pronouns: he/him
