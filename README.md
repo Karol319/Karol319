@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on i don't know
 - 📫 How to reach me dc:ertave
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i'm stupid
 
 <!---
 Karol319/Karol319 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
